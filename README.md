@@ -1,2 +1,2 @@
 # Tan
-I like spicy food
+I don't like Spicy food
